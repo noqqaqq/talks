@@ -1,0 +1,1 @@
+Everything published here cannot be distributed nor copied without author permission.
